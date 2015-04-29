@@ -9,8 +9,8 @@ Company friends:
 
 [Keen IO](http://keen.io)
 
-[Other Comapnes](links)
+[Other Companies](links)
 
-[Other Comapnes](links)
+[Other Companies](links)
 
-[Other Comapnes](links)
+[Other Companies](links)
